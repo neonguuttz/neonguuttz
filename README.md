@@ -8,7 +8,7 @@
 
 
 <sub> hi im a newly converted futbol fan ok? ok. i love neymar and dembele ⭐️
-
+<sub> /w friends , hetalia area, or cafe ‎ ‎ ‎ ‎ ꜝꜝ
 <sub>[straw](https://neonguutzz.straw.page)
 
 
