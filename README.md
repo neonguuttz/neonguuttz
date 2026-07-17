@@ -6,7 +6,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ff6a00&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-<sub> q!ewron kin !
+
+<sub> hi im a newly converted futbol fan ok? ok. i love neymar and dembele ⭐️
 
 <sub>[straw](https://neonguutzz.straw.page)
 
