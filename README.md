@@ -10,7 +10,6 @@
 <sub> /w friends , hetalia area, or cafe ‎ ‎ ‎ ‎ ꜝꜝ
 
 <sub>[straw](https://neonguutzz.straw.page)   
-.
 
 .
 .
@@ -18,7 +17,6 @@
 
 <sub>[ata](https://imsoneeon.atabook.org)
 
-.
 
 .
 .
