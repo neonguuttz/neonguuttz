@@ -1,6 +1,7 @@
-<sub> wip page っ◞‸◟ c
+<sub> wip page !!
 
-<img width="735" height="245" alt="08a6c52d2ac4215957c3e4f61ae242a8" src="https://github.com/user-attachments/assets/124ff9fd-468d-4aad-ab21-520958b1e1ab" />
+<img width="735" height="414" alt="Image 2" src="https://github.com/user-attachments/assets/9bebaf5f-feb7-4a92-9e53-c8ca1134dae5" />
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ff6a00&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
